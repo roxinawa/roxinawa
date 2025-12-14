@@ -1,3 +1,3 @@
-## 👁️ Greetings, I'm Apenas Tudo
+## 👁️ Greetings, I'm Roxinawa
 
-[https://apenastudo.me](https://apenastudo.me)
+[https://apenastudo.me](https://roxinawa.me)
